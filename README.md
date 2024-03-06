@@ -1,1 +1,1 @@
-This pj is from Fairway teachs me!
+This is teachs me from Fairway!
